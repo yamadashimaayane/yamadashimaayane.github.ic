@@ -1,2 +1,2 @@
-# yamadashimaayane.github.ic
+# yamadashimaayane.github.io
 らいすのウェブサイト
